@@ -1,4 +1,4 @@
-# hey, i'm Soph 🌻
+# hey, i'm Soph.
 
 creative projects, music, software and digital experiments.
 
